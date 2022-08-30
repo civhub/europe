@@ -1,2 +1,2 @@
-# eu-ico
+# Europe (Icon Pack)
 Europe (Icon Pack)
